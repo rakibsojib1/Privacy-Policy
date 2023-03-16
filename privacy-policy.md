@@ -33,6 +33,6 @@ By using this app, you signify your acceptance of this policy. If you do not agr
 
 Contacting Us
 
-If you have any questions about this Privacy Policy, the practices of this app, or your dealings with this app, please contact us at [insert contact information here].
+If you have any questions about this Privacy Policy, the practices of this app, or your dealings with this app, please contact us at rakibsojib55@gmail.com.
 
 This document was last updated on [03/16/2023].
